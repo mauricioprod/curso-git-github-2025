@@ -16,11 +16,10 @@ Confira tudo o que temos no nosso YouTube. É grátis!
 
 
 
-\----
+----
 
 
 
-\## Pessoas participantes:
+## Pessoas participantes:
 
-\- Téo
-
+- Téo
