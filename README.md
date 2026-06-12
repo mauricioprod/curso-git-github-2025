@@ -14,7 +14,9 @@ Confira tudo o que temos no nosso YouTube. É grátis! Segue o link:
 
 [Curso Git 2025] (https://youtube.com/@teomewhy)
 
+Se liga no nosso canal do YouTube e no nosso site a agenda para ficar por dentro de tudo que vai rolar em 2025.
 
+[teomewhy.org](https://teomewhy.org/schedule)
 
 ----
 
